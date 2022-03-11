@@ -1,4 +1,4 @@
-![#c5f015](MODULO SANKHYA) `#c5f015`
+MODULO SANKHYA
 
 
 
